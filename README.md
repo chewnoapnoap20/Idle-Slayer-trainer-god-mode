@@ -1,0 +1,1 @@
+# Idle-Slayer-trainer-god-mode
